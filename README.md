@@ -1,1 +1,0 @@
-# gakvetili-3
